@@ -1,3 +1,3 @@
-## Hi there 👋
+## Welcome to Hexsieur 👋
 
 Coming soon 👀👀👀
